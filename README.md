@@ -1,0 +1,1 @@
+# mynews.github.io
